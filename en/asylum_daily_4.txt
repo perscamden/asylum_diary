@@ -16,14 +16,14 @@ Usually I don't mean to cause anyone troubles or embarassment. Perhaps not troub
 It is like:
 
 try:
-  loop:
+  while True:
     if not pointed_out:
       continue
   
     if pointed_out:
       get_mad()
     
-      if random(1,100) greater_than 95:
+      if random.randint(0,100) > 95:
         raise EmbarassedError
 
 except EmbarassedError:
