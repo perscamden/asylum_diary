@@ -1,6 +1,33 @@
 8 Sep, 2022
 My roommate wanted to give me a pair of glasses. I was like, what? Are we supposed to have the same (level of) sight problem?
 
+I wanted to spend my time here studying. But my mind is troubled that there has been barely any progress. Some people might be happy and claim that it is because they are the reason why I was able to do anything. I shall write about petty management some day. When I say petty management, I don't just mean something like your manager, it could be as huge as a ruling party of a country.
+
 ####################
 
-I wanted to spend my time here studying. But my mind is troubled that there has been barely any progress.
+I am a very flawed person, although many of my flaws affect only myself. My own business or not, I am afraid they would still be used to cause harm, and not only to harm me.
+
+Let's talk about a less shameful one. I am quite sure that many people hate or dislike me for talking so much about right and wrong. To be honest, I think that it is a huge part of the reason of the troubles I have from my homeland. Possibly also causing a lot other troubles for me, too.
+
+One of the ways to attack me was to say that I also fail to do no wrongs. That's bullshit imo. One doesn't have to be perfect to point out something is wrong. Actually being imperfect provide us the experience to know that something is wrong. I criticize myself much more than I would the others, sometimes silently, sometimes aloud. And sometimes when I do it aloud, I hope that the others would realize they too have the same or other problem. Unfortunately it wouldn't work most of the time. Most of the time it just gets myself laughed at or looked down on.
+
+Usually I don't mean to cause anyone troubles or embarassment. Perhaps not troubles, but embarassment would be caused anyway. But if people keep doing the same over and over and it is causing harm, should I not point it out? I hope there is a way not to upset anyone, but, you probably could imagine, people would get mad once they find that they are doing exactly what you pointed out. And they are mad at you.
+
+It is like:
+
+try:
+  loop:
+    if not pointed_out:
+      continue
+  
+    if pointed_out:
+      get_mad()
+    
+      if random(1,100) greater_than 95:
+        raise EmbarassedError
+
+except EmbarassedError:
+  get_mad()
+
+finially:
+  it_sucks()
