@@ -29,5 +29,5 @@ try:
 except EmbarassedError:
   get_mad()
 
-finially:
+finally:
   it_sucks()
