@@ -3,7 +3,7 @@ The male cat get wounds on him repeatedly in the past month, read more [here](ht
 
 About a week ago someone moved into the room.
 
-Have been going to the library for computer regularly. Since about a month ago someone else also comes regularly. He seems frequently murmuring something and uses the mouse and keyboard quite forcefully.
+Have been going to the library for computer regularly. Since about a month ago someone else also comes regularly. He seems frequently murmuring something.
 
 There have been quite some people visiting the library including the computer roon lately. Sometimes in group.
 
