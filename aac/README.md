@@ -15,3 +15,19 @@ What I have confirmed are:
 8. It is faint most of the times, tend to be louder at night with the quietness of night considered
 
 It has been a few months since the first time I noticed it around my head when I was sleeping. (Written on 19 Ja , 2023)
+
+---
+
+Here are some things I have found. Whether the noise is produced by one of these hypersonic, microwave and EMF devices or not, it is most likely produced by some kind of technology.
+
+The most important information is in the first OHCHR pdf. I have experienced most, if not all, of the what it lays out. Some which are still on going.
+
+https://www.ohchr.org/Documents/Issues/Torture/Call/Individuals/Harrassmenttechniques.pdf
+
+https://www.ohchr.org/sites/default/files/Documents/Issues/Torture/Call/Individuals/ElectromagneticTorture.pdf
+
+https://www.linkedin.com/mwlite/pulse/20141124060441-1767830-using-high-intensity-ultrasound-for-electronic-harassment-targeted-individuals?trk=article-ssr-frontend-pulse-lite_x-social-details_comments_comment-see-more
+
+https://youtube.com/playlist?list=PLU1KxUVqGmaMVvH3W7S7pJKPsHDFZl6qk
+
+https://en.m.wikipedia.org/wiki/Acoustic_harassment_device
