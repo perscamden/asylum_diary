@@ -18,7 +18,7 @@ It has been a few months since the first time I noticed it around my head when I
 
 ---
 
-Here are some things I have found. Whether the noise is produced by one of these hypersonic, microwave and EMF devices or not, it is most likely produced by some kind of technology.
+Here are some things I have found. Whether the noise is produced by one of these hypersonic, microwave or EMF devices or not, it is most likely produced by some kind of technology.
 
 The most important information is in the first OHCHR pdf. I have experienced most, if not all, of the what it lays out. Some which are still on going.
 
