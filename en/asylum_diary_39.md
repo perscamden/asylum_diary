@@ -43,4 +43,10 @@ There are also all kinds of stupid pettiness on-going. When pettiness pairs with
 
 20230714
 
-Was told to have an interview a few days later.
+Was told to have an interview a few days later this morning.
+
+"all the information you submit during the interview will be considered confidential", a note reads. Such mockery.
+
+I asked to record the conversation they told me about the interview. They said it was forbidden and only let me record what they wanted to say at the end.
+
+Far before noon the conversation was already known here and there.
