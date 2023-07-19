@@ -31,3 +31,8 @@ https://www.linkedin.com/mwlite/pulse/20141124060441-1767830-using-high-intensit
 https://youtube.com/playlist?list=PLU1KxUVqGmaMVvH3W7S7pJKPsHDFZl6qk
 
 https://en.m.wikipedia.org/wiki/Acoustic_harassment_device
+
+---
+
+written on 19 Jul 2023
+The noise changed after the last edit, both in tone and in volume. It is less noisy, harder to record and hard to be diffetentiated from other sounds. Sometimes I could't hear it.
