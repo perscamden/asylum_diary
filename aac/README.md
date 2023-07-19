@@ -35,4 +35,5 @@ https://en.m.wikipedia.org/wiki/Acoustic_harassment_device
 ---
 
 written on 19 Jul 2023
+
 The noise changed after the last edit, both in tone and in volume. It is less noisy, harder to record and hard to be diffetentiated from other sounds. Sometimes I could't hear it.
