@@ -18,6 +18,6 @@ Though there might be different or extra reasons. This kind of behaviour is not 
 
 ---
 
-Got a reply that I would be deported to back to my country of origin if the asylum application is withdrawn. I replied it is not safe, asked if I can choose my destination and asked for official documents about the matter.
+Got a reply that I would be deported back to my country of origin if the asylum application is withdrawn. I replied it is not safe, asked if I can choose my destination and asked for official documents about the matter.
 
 I still don't have proper information on many things, on most things perhaps.
