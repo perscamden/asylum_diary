@@ -2,7 +2,7 @@
 
 Much happened, as always, just didn't really want to write, but still have to write.
 
-Not going to write the relatively important things except that I asked for information about withdrawing asylum application. The responses so far were just that I have to write application for it... Not informational at all. More than one year here, I still don't have proper information on many things, on most things perhaps. And there will be a decision about my asylum application soon.
+Not going to write the relatively important things except that I asked for information about withdrawing asylum application. The responses so far were just that I have to write application for it and there will be a decision about my asylum application soon. Not informational at all. More than one year here, I still don't have proper information on many things, on most things perhaps.
 
 Some seemingly trivial things which I hope they are actually really unimportant are:
 
