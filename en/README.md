@@ -6,7 +6,7 @@ Vilniaus g. 4, 18178 Pabradė
 Lithuania
 
 ### Author situation:
-Essentially imprisoned a with passport taken while applied for asylum and the State Border Guard Service and the Migration Department refuse to return with excuses.
+Essentially imprisoned with passport taken while applied for asylum and the State Border Guard Service and the Migration Department refuse to return with excuses.
 
 - prevented from leaving by refusing to return passport
 - Under constant invasive surveillance including in bed
