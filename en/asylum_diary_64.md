@@ -1,6 +1,6 @@
 I have lost the ability to talk.
 
-FFS, I hope this is enough to indicate I have little to do with whatever that are happening and whatever that are going to happen. Just like before.
+FFS, I hope this is enough to indicate I have little to do with whatever that are happening and whatever that are going to happen, just like before.
 It is much like the early days in Lithuania.
 
 There are more important things I am not writing about.
