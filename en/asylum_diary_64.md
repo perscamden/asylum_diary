@@ -9,7 +9,7 @@ And think about what have happened, don't think that these trivial things are re
 Wrote the part below the line somewhere else yesterday. This morning the roommate went out and some people came to check power sockets. Asked if they would also check the air conditioner because the room was suffocating. After checking they told me to tell the reception and I noded in response.
 Days ago the power in the room was shut down twice. I was told to tell the reception.
 
-There are dramas.
+There are dramas. And hell, yeah, surveillance and stuff.
 
 Yesterday roommate talked with people about electricity and lightings.
 Kettle changed, bed changed.
