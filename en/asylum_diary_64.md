@@ -3,7 +3,7 @@ I have lost the ability to talk.
 FFS, I hope this is enough to indicate I have little to do with whatever that are happening and whatever that are going to happen, just like before.
 It is much like the early days in Lithuania.
 
-There are more important things I am not writing about. (Edit: but this: suffering a very suddent severe respiration problem again. Started a few days before writing this entry.)
+There are more important things I am not writing about. (Edit: but this: suffering a very suddent severe respiration problem again. Started shortly before writing this entry.)
 And think about what have happened, don't think that these trivial things are really trivial.
 
 Wrote the part below the line somewhere else yesterday. This morning the roommate went out and some people came to check power sockets. Asked if they would also check the air conditioner because the room was suffocating. Happened the control panel became unpowered at that time. I told them it was suffocating even when it was on. They told me to tell the reception and I noded in response.
