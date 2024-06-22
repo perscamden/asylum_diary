@@ -1,6 +1,6 @@
 Hard to read, but it may contain information that is worth knowing.
 
-## Author needs help
+## Author needs help (outdated, currently in the UK)
 ### location:
 Pabradė foreigner’s registration centre
 Vilniaus g. 4, 18178 Pabradė
