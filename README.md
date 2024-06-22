@@ -1,6 +1,8 @@
 The main diary entries are in the en/ (older) and the UK/ (more recent) folders.
 
-I am a nobody, and this happens to me, which means it can happen to pretty much everyone.
+It is not reader friendly as it was meant to be a record only.
+
+I am a nobody, and this happens to me, it means it can happen to pretty much everyone.
 
 I won't be surprised that I could be painted in many ways. But I confidently say that I tried to offer my best.
 
