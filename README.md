@@ -1,6 +1,6 @@
 The main diary entries are in the en/ (older) and the UK/ (more recent) folders.
 
-It is not reader friendly as it was meant to be a record only.
+It is not reader friendly as it was meant to be a record only. Maybe it is easier to read the newer entries first because they are more explicit.
 
 I am a nobody, and this happens to me, it means it can happen to pretty much everyone.
 
@@ -12,7 +12,7 @@ They might pretend they did only some unharmful stupid things.
 
 Those are not the only things they did.
 
-I confidently say that I tried to offer my best. More than just as an asylum seeker.
+I confidently say that I tried to offer my best. More than just as an asylum seeker. 
 
 What I got was year long insult and torture that causes actual damages.
 
