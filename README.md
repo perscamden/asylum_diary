@@ -8,9 +8,11 @@ I won't be surprised that I could be painted in many ways. You might think that 
 
 A simple fact is, I do but I didn't.
 
-They might pretend they did only some unharmful stupid things.
+I'll specify one thing here. I tried to learn Lithuanian on my own soon after I arrived there, when there was no class. What happen THEN was that they started pretend to finally providing class. I will be fair that a small portion of the classes was quite real. But most of the time little was taught in an intention unhelpful way exactly what I had learned by myself which they clearly knew by the dehumanising surveillance. It couldn't be coincidence. And that came with tons of harassment in an atmosphere I feared what they were truely doing.
 
-Those are not the only things they did.
+They might pretend they do only some unharmful stupid things.
+
+Those are not the only things they do.
 
 I confidently say that I tried to offer my best. More than just as an asylum seeker. 
 
