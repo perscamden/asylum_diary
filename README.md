@@ -6,7 +6,7 @@ I am a nobody, and this happens to me, it means it can happen to pretty much eve
 
 I won't be surprised that I could be painted in many ways. You might think that I shouldn't act the way I do as an asylum seeker.
 
-A simple fact is, I didn't.
+A simple fact is, I do but I didn't.
 
 They might pretend they did only some unharmful stupid things.
 
