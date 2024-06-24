@@ -14,7 +14,7 @@ Those are not the only things they did.
 
 I confidently say that I tried to offer my best. More than just as an asylum seeker.
 
-What I got was year long insult and torture that causes actual damage.
+What I got was year long insult and torture that causes actual damages.
 
 Even if consider only the asylum seeker part, I would have been thankful for the slightest or basic things such as a roof and simple food and I did. 
 
