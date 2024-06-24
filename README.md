@@ -8,7 +8,7 @@ I won't be surprised that I could be painted in many ways. You might think that 
 
 A simple fact is, I do but I didn't.
 
-I'll specify one thing here. I tried to learn Lithuanian on my own soon after I arrived there, when there was no class. What happen THEN was that they started to pretend finally providing class. I will be fair that a small portion of the later classes was quite real. But most of the time little of exactly what I had learned by myself which they clearly knew by the dehumanising surveillance was taught in an intentional unhelpful way. It couldn't be coincidence. And that came with tons of harassment in an atmosphere I feared what they were truely doing. I have written the same in the entries, perhaps less explicitly back then.
+I'll specify one thing here. I tried to learn Lithuanian on my own soon after I arrived there, when there was no class. What happen THEN was that they started to pretend finally providing class. I will be fair that a small portion of the later classes was quite real. But most of the time little of exactly what I had learned by myself which they clearly knew by the dehumanising surveillance was taught in an intentional unhelpful way. It couldn't be coincidence. And that came with harassment or worse that I feared what they were truely doing. I have written the same in the entries, perhaps less explicitly back then.
 
 They might pretend they do only some unharmful stupid things.
 
