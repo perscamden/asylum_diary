@@ -26,4 +26,4 @@ I don't hope that you (readers) can help me anymore. I hope only you will unders
 
 I don't know what we can do. But the first thing should be realising what ugly world we are living in.
 
-And my pessimistic believe is that it might already be too late and we might have little chance to change anything already.
+My pessimistic believe is that it might already be too late and we might have little chance to change anything already.
