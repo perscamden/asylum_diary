@@ -8,4 +8,4 @@ Continued coughing this whole day and if got worse in the evening. Was sleepy bu
 
 Now they are drugging me to sleep. Again*. I have said they treat me like a fucking lab rat didn't I?
 
-[Some in video form.](https://youtube.com/playlist?list=PLVpki3z5vQoDUA15uOJ49oep5z4JjBaqt&si=TNSUOqfmfW0i7jtA)
+[Some in video form](https://youtube.com/playlist?list=PLVpki3z5vQoDUA15uOJ49oep5z4JjBaqt&si=TNSUOqfmfW0i7jtA)
