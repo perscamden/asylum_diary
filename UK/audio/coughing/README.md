@@ -6,6 +6,6 @@ Continued coughing this whole day and if got worse in the evening. Was sleepy bu
 
 20240626
 
-Now they are drugging me to sleep. Again*. I have said they treat me like a fucking lab rat didn't I?
+Now they are drugging me to sleep. Again. You probably don't know where this again comes from. It happened not only not just once. It happened not even just ten times. I have said they treat me like a fucking lab rat didn't I?
 
 [Some in video form](https://youtube.com/playlist?list=PLVpki3z5vQoDUA15uOJ49oep5z4JjBaqt&si=TNSUOqfmfW0i7jtA)
