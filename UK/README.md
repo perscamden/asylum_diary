@@ -1,1 +1,1 @@
-I have written more things explicitly recently. It doesn't mean those kinds of things happened only recently.
+I have written more things explicitly recently. It doesn't mean those kinds of things happened only recently. Except the particular events, most things happened many times already. Tracing back not to Lithuania but my homeland.
