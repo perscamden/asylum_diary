@@ -1,6 +1,6 @@
 The main diary entries are in the en/ (older) and the UK/ (more recent) folders.
 
-It is not reader friendly as it was meant to be a record only. Maybe it is easier to read the newer entries first because they are more explicit.
+It is not reader friendly as it was meant to be a record only, and an incomplete one. Maybe it is easier to read the newer entries first because they are more explicit.
 
 I am a nobody, and this happens to me, it means it can happen to pretty much everyone.
 
