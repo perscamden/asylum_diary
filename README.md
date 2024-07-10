@@ -10,7 +10,7 @@ Tried to volunteer for Ukraine both because I thought that we should help and be
 
 Received no response and felt followed in Poland. Left Poland and sought asylum in Lithuania.
 
-Started off proactively telling them my plan to establish my life in Lithuania and the problems or dangers I sensed. Turned out the authorities of Lithuania were helping the Chinese Communist Party to continue and further their persecution. Suffered harassment, insult and health damages for almost 2 years. Left when realized even the legal process for appeal was fake. Got my passport back after months of struggles but wasn’t given any documents when I refused to sign on their terms. Check the entries for some of the details.
+Started off proactively telling them my plan to establish my life in Lithuania and the problems or dangers I sensed. Turned out the authorities of Lithuania were helping the Chinese Communist Party to continue and further their persecution. Suffered harassment, insult and health damages for almost 2 years. Left when realized even the legal process for appeal was fake. Got my passport back after months of struggles but wasn’t given any documents. I refused to sign various things because those were not my actions. Check the entries for some of the details.
 
 Got trapped in the departure area of Riga International Airport and robbed by power abuse in Latvia.
 
