@@ -1,4 +1,4 @@
-**An overly simplified encapsulation**
+### An overly simplified encapsulation
 
 (The years long insult and torture are backed with power abuse and impunity. They know to cover their crimes but at the same time they are proud committing them.
 
@@ -12,19 +12,17 @@ Received no response and felt followed in Poland. Left Poland and sought asylum 
 
 Started off proactively telling them my plan to establish my life in Lithuania and the problems or dangers I sensed. Turned out the authorities of Lithuania were helping the Chinese Communist Party to continue and further their persecution. Suffered harassment, insult and health damages for almost 2 years. Left when realized even the legal process for appeal was fake. Got my passport back after months of struggles but wasn’t given any documents when I refused to sign on their terms.
 
-Got trapped in the departure area of Riga airport and robbed by power abuse in Latvia.
+Got trapped in the departure area of Riga International Airport and robbed by power abuse in Latvia.
 
 Arrived in the UK with an expiring passport and barely any money left. Claimed asylum. 
 
 What happened in Lithuania continues in the UK.
 
-**A few examples of what they do**
+### A few examples of what they do
 
-Inflicting health damages. A notable one is the damage to my respiratory system. I have become so weak that even a small change in the air or a normal movement in daily life can make me cough.
+Inflicting health damages. One is the damage to my respiratory system. I have become so weak that even a small change in the air or a normal movement in daily life can make me cough.
 
-There used to be alarm in the Foreigners Registration Centre in Lithuania and Holiday 
-
-Inn in the UK that would go off before I notice any smoke. But later the alarm remained silent even when there was smoke that made me cough nonstop. Not that places without alarm (or the alarm didn’t go off) were any better.
+There used to be alarm in the Foreigners Registration Centre in Lithuania and Holiday Inn in the UK that would go off before I notice any smoke. But later the alarm remained silent even when there was smoke that made me cough nonstop. Not that places without alarm (or the alarm didn’t go off) were any better.
 
 Fake personnels of all kinds of organization including the UN and NGOs, or real but complicit. I don’t know which is worse.
 
