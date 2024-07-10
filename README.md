@@ -4,33 +4,41 @@
 
 Number of involved people are hundreds if not over a thousand.)
 
+**An overly simplified encapsulation**
+
+(The years long insult and torture are backed with power abuse and impunity. They know to cover their crimes but at the same time they are proud committing them.
+
+Number of involved people are hundreds if not over a thousand.)
+
 I left Hong Kong when I sensed dangers including my home being entered when I was away and dangers at workplaces.
 
-Tried to volunteer for Ukraine both because I thought that we should help and because I wouldn’t be qualified for VISAs. I reckoned there could be life threatening dangers in Ukraine, but I believe there is a difference between dying for a cause and dying to/suffering persecution by authoritarians without being able to do anything. In the years that follow I got mocked a lot. “You have freedom now.”, “Captain”, “Big man”, "Baby” and various names of animal along with simpler offensive names like motherfucker.
+Tried to volunteer for Ukraine both because I thought that we should help and because I wouldn’t be qualified for VISAs. I reckoned there could be life threatening dangers in Ukraine, but I believe there is a difference between dying for a cause and dying to/suffering persecution by authoritarians without being able to do anything. In the 
 
-Received no response and felt followed in Poland. Left Poland and sought asylum 
+years that follow I got mocked a lot. “You have freedom now.”, “Captain”, “Big man”, "Baby” and various names of animal along with simpler offensive names like motherfucker.
 
 Received no response and felt followed in Poland. Left Poland and sought asylum in Lithuania.
 
-Started out proactively telling them my plan to establish my life in Lithuania and the problems or dangers I sensed. Turned out the authorities of Lithuania were helping the Chinese Communist Party to continue and further their persecution. Suffered harassment, insult and health damages for almost 2 years. Left when realized even the legal process for appeal was fake.
+Started off proactively telling them my plan to establish my life in Lithuania and the problems or dangers I sensed. Turned out the authorities of Lithuania were helping the Chinese Communist Party to continue and further their persecution. Suffered harassment, insult and health damages for almost 2 years. Left when realized even the legal process for appeal was fake. Got my passport back after months of struggles but wasn’t given any documents when I refused to sign on their terms.
 
-Got trapped for days in airport and robbed in Latvia by power abuse.
+Got trapped in the departure area of Riga airport and robbed by power abuse in Latvia.
 
-Arrived in the UK with an expiring passport and barely any money left. Claimed asylum. What happened in Lithuania continues in the UK.
+Arrived in the UK with an expiring passport and barely any money left. Claimed asylum. 
+
+What happened in Lithuania continues in the UK.
 
 **A few examples of what they do**
 
-Inflict health damages. A notable one is the damage to my respiratory system. I have become so weak that even small changes in the air or normal movement in daily life can make me cough.
+Inflicting health damages. A notable one is the damage to my respiratory system. I have become so weak that even a small change in the air or a normal movement in daily life can make me cough.
 
 There used to be alarm in the Foreigners Registration Centre in Lithuania and Holiday 
 
 Inn in the UK that would go off before I notice any smoke. But later the alarm remained silent even when there was smoke that made me cough nonstop. Not that places without alarm (or the alarm didn’t go off) were any better.
 
-Fake personnels of all kinds of organization including the UN and NGOs, or real but complicit. I don’t know which is worse. 
+Fake personnels of all kinds of organization including the UN and NGOs, or real but complicit. I don’t know which is worse.
 
-Stalking me everywhere and had phone camera aiming at me.
+Stalking me everywhere and having phone cameras aimmed at me.
 
-They use also women not only to stalk me and aim camera at me, but also “walk in front of me” or do other things in front of me. Convince me that’s not sick. And it’s not just the Chinese Communist Party, but also Lithuania and the UK.
+They send also women not only to stalk me and aim cameras at me, but also to “walk in front of me” or do other things in front of me. Convince me that’s not sick. And it’s not just the Chinese Communist Party, but also Lithuania and the UK.
 
 Numerous fake passersby.
 
@@ -42,7 +50,7 @@ Control and breach over both physical and digital mails.
 
 Collection of my image, voice and writing.
 
-Fake processes and fake documents. But they are or are backed by the authorities, so. Yes, it's complicated.
+Fake processes and fake documents. But they are or are backed by the authorities, so...
 
 ---
 ---
