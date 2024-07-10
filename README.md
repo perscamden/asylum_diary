@@ -1,3 +1,49 @@
+**An overly simplified encapsulation**
+
+(All these are backed by power abuse and impunity. They know to cover their crimes but at the same time they are proud committing them.
+
+Number of involved people are hundreds if not over a thousand.)
+
+I left Hong Kong when I sensed dangers including my home being entered when I was away.
+
+Tried to volunteer for Ukraine both because I thought that we should help and because I wouldn’t be qualified for VISAs. I understood there could be life threatening danger in Ukraine, but I believe there is a difference between dying for a cause and dying to persecution by authoritarians without being able to do anything. Received no response and felt followed in Poland. Left Poland and sought asylum in Lithuania.
+
+Started out proactively telling them my plan to establish my life in Lithuania and the problems or dangers I sensed. Turned out the authorities of Lithuania were helping the Chinese Communist Party to continue and further their persecution. Suffered harassment, insult and health damages for almost 2 years. Left when realized even the legal process for appeal was fake.
+
+Got trapped for days in airport and robbed in Latvia by power abuse.
+
+Arrived in the UK with an expiring passport and barely any money left. Claimed asylum. 
+
+What happened in Lithuania continues in the UK.
+
+**A few examples of what they do**
+
+Inflict health damages. A notable one is the damage to my respiratory system. I have become so weak that even small changes in the air or normal movement in daily life can make me cough.
+
+There used to be alarm in the Foreigners Registration Centre in Lithuania and Holiday 
+
+Inn in the UK that would go off before I notice any smoke. But later the alarm remained silent even when there was smoke that made me cough nonstop. Not that places without alarm (or the alarm didn’t go off) were any better.
+
+Fake personnels of all kinds of organization including the UN and NGOs, or real but complicit. I don’t know which is worse. 
+
+Stalking me everywhere and had phone camera aiming at me.
+
+They use also women not only to stalk me and aim camera at me, but also “walk in front of me” or do other things in front of me. Convince me that’s not sick. And it’s not just the Chinese Communist Party, but also Lithuania and the UK.
+
+Numerous fake passersby.
+
+Not just men and women, everything is a tool to them, including children and animals. I have kind of mentioned in some entries.
+
+Dehumanising surveillance that enable other crimes.
+
+Control and breach over both physical and digital mails.
+
+Collection of my image, voice and writing.
+
+Fake processes and fake documents. But they are or are backed by the authorities, so. Yes, it's complicated.
+
+---
+
 The main diary entries are in the en/ (older) and the UK/ (more recent) folders.
 
 It is not reader friendly as it was meant to be a record only, and an incomplete one. Maybe it is easier to read the newer entries first because they are more explicit.
