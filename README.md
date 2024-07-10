@@ -14,7 +14,7 @@ Started off proactively telling them my plan to establish my life in Lithuania a
 
 Got trapped in the departure area of Riga International Airport and robbed by power abuse in Latvia.
 
-Arrived in the UK with an expiring passport and barely any money left. Claimed asylum. 
+Arrived in the UK with an expiring passport and barely any money left. Couldn't reactivate a bank account I used here years ago. Claimed asylum. 
 
 What happened in Lithuania continues in the UK.
 
