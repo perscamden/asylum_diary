@@ -24,6 +24,8 @@ Inflicting health damages. One is the damage to my respiratory system. I have be
 
 There used to be alarm in the Foreigners Registration Centre in Lithuania and Holiday Inn in the UK that would go off before I notice any smoke. But later the alarm remained silent even when there was smoke that made me cough nonstop. Not that places without alarm (or the alarm didn’t go off) were any better.
 
+Some other health manipulations are mild diarrhoea, severe vomiting, unnatural doziness and unnatural erection. There are some others that can be found in the entries.
+
 Fake personnels of all kinds of organization including the UN and NGOs, or real but complicit. I don’t know which is worse.
 
 Stalking me everywhere and having phone cameras aimed at me.
