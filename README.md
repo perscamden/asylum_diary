@@ -42,6 +42,8 @@ Control and breach over both physical and digital mails and other forms of commu
 
 Collection of my image, voice and writing.
 
+Disclosing my privacy to all kinds of people.
+
 Fake processes and fake documents. But they are or are backed by the authorities, so...
 
 ---
