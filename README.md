@@ -4,7 +4,7 @@
 
 Number of involved people are hundreds if not over a thousand.)
 
-I left Hong Kong when I sensed dangers including my home being entered when I was away.
+I left Hong Kong when I sensed dangers including my home being entered when I was away and danger at work places.
 
 Tried to volunteer for Ukraine both because I thought that we should help and because I wouldn’t be qualified for VISAs. I understood there could be life threatening danger in Ukraine, but I believe there is a difference between dying for a cause and dying to persecution by authoritarians without being able to do anything. Received no response and felt followed in Poland. Left Poland and sought asylum in Lithuania.
 
