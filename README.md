@@ -1,6 +1,6 @@
 **An overly simplified encapsulation**
 
-(All these are backed by power abuse and impunity. They know to cover their crimes but at the same time they are proud committing them.
+(The years long insult and torture are backed by power abuse and impunity. They know to cover their crimes but at the same time they are proud committing them.
 
 Number of involved people are hundreds if not over a thousand.)
 
@@ -34,7 +34,7 @@ Numerous fake passersby.
 
 Not just men and women, everything is a tool to them, including children and animals. I have kind of mentioned in some entries.
 
-Dehumanising surveillance that enable other crimes.
+Dehumanising surveillance that enables other crimes.
 
 Control and breach over both physical and digital mails.
 
