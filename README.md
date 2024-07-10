@@ -16,9 +16,7 @@ Started out proactively telling them my plan to establish my life in Lithuania a
 
 Got trapped for days in airport and robbed in Latvia by power abuse.
 
-Arrived in the UK with an expiring passport and barely any money left. Claimed asylum. 
-
-What happened in Lithuania continues in the UK.
+Arrived in the UK with an expiring passport and barely any money left. Claimed asylum. What happened in Lithuania continues in the UK.
 
 **A few examples of what they do**
 
