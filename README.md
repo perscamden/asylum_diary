@@ -26,7 +26,7 @@ There used to be alarm in the Foreigners Registration Centre in Lithuania and Ho
 
 Fake personnels of all kinds of organization including the UN and NGOs, or real but complicit. I don’t know which is worse.
 
-Stalking me everywhere and having phone cameras aimmed at me.
+Stalking me everywhere and having phone cameras aimed at me.
 
 They send also women not only to stalk me and aim cameras at me, but also to “walk in front of me” or do other things in front of me. Convince me that’s not sick. And it’s not just the Chinese Communist Party, but also Lithuania and the UK.
 
@@ -36,7 +36,7 @@ Not just men and women, everything is a tool to them, including children and ani
 
 Dehumanising surveillance that enables other crimes.
 
-Control and breach over both physical and digital mails.
+Control and breach over both physical and digital mails and other forms of communication.
 
 Collection of my image, voice and writing.
 
