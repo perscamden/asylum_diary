@@ -1,6 +1,6 @@
 ### An incomplete encapsulation
 
-(The years-long insult and torture are backed with power abuse and impunity. They might claim what they do are nothing serious, but see for yourself. They are proud committing them, yet abuse power to cover.
+(The years-long insult and torture are backed with power abuse and impunity. They might claim what they do are nothing serious. They might be doing all these because of pettiness, but their crimes are surely not petty. Or they might claim that I was the one who cause troubles. That is knowingly twisting the fact. They cover the crimes with further crimes and power abuse and are proud of what they do.
 
 Number of involved people are hundreds if not over a thousand.)
 
