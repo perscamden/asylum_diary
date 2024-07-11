@@ -1,6 +1,6 @@
 ### An incomplete encapsulation
 
-(The years-long insult and torture are backed with power abuse and impunity. They might claim what they do are nothing serious. They might be doing all these because of pettiness, but their crimes are surely not petty, not petty in scale that is. Or they might claim that I was the one who causes troubles. That is knowingly twisting the fact. I regret that I ever used an apologetic tongue for easing the tenses, where the shameless really act as if I am the problem. They cover the crimes with further crimes and power abuse and are proud of what they do.
+(The years-long insult and torture are backed with power abuse and impunity. They might claim their actions are nothing serious. They might be doing all these because of pettiness, but their crimes are surely not petty, not petty in scale that is. Or they might claim that I was the one causing troubles. That is knowingly twisting the facts. I regret that I ever used an apologetic tone for easing the tension, where the shameless really act as if I am the problem. They cover the crimes with further crimes and power abuse and are proud of what they do.
 
 Number of involved people are hundreds if not over a thousand.)
 
