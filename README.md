@@ -53,6 +53,8 @@ The main diary entries are in the en/ (older) and the UK/ (more recent) folders.
 
 It is not reader friendly as it was meant to be a record only, and an incomplete one. Maybe it is easier to read the newer entries first because they are more explicit.
 
+Seems that I misused "drama" many times in the entries. I meant acting on a script.
+
 I am a nobody, and this happens to me, it means it can happen to pretty much everyone.
 
 I won't be surprised that I could be painted in many ways. You might think that I shouldn't act the way I do as an asylum seeker.
