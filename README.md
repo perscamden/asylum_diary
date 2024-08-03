@@ -1,6 +1,6 @@
 ### An incomplete encapsulation
 
-The username is homophonic with a very offensive phrase in my first language that roughly means "very stupid". It was as picked around 2 years ago when I felt something was wrong in Lithiania, not long after applied for asylum.
+The username "Lochard" sounds similar a very offensive phrase in my first language that roughly means "very stupid". "Patrick" also sounds similar to "idiot" in my first language. It was as picked around 2 years ago when I felt something was wrong in Lithiania, not long after applied for asylum. I actually hoped the Lithuanians would tell me that they were just kidding with all the things back then. How could I have imagined it was only the beginning.
 
 (The years-long insult and torture are backed with power abuse and impunity. They might claim their actions are nothing serious. They might be doing all these because of pettiness, but their crimes are surely not petty, not petty in scale that is. Or they might claim that I was the one causing troubles. That is knowingly twisting the facts. I regret that I ever used an apologetic tone for easing the tension, where the shameless really act as if I am the problem. They cover the crimes with further crimes and power abuse and are proud of what they do.
 
