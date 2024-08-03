@@ -1,5 +1,7 @@
 ### An incomplete encapsulation
 
+The username is homophonic with a very offensive phrase in my first language that roughly means "very stupid". It was as picked around 2 years ago when I felt something was wrong in Lithiania, not long after applied for asylum.
+
 (The years-long insult and torture are backed with power abuse and impunity. They might claim their actions are nothing serious. They might be doing all these because of pettiness, but their crimes are surely not petty, not petty in scale that is. Or they might claim that I was the one causing troubles. That is knowingly twisting the facts. I regret that I ever used an apologetic tone for easing the tension, where the shameless really act as if I am the problem. They cover the crimes with further crimes and power abuse and are proud of what they do.
 
 The number of involved people is in the hundreds, if not over a thousand.)
