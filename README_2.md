@@ -1,5 +1,5 @@
 <pre>Sensed danger in Hong Kong
-Tried to volunteer for Ukraine but got no response. Considering everything happened afterwards and back then, the email address could also be fake.
+Tried to volunteer for Ukraine but got no response. Considering everything happened afterwards and back then, the email address could also be fake. Or anyhow, the email reached the persecutors.
 Sought asylum in Lithuainia.
 Went so far as to tell them about all the money I had, whether accessible or not, and how I planned to spend my money, which wasn't much, to establish my life in Lithuania.
 Got treated as horse shit, harassed, insulted, damaged for more than one year.
