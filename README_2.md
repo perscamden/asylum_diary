@@ -1,4 +1,4 @@
-Sensed danger in Hong Kong
+<pre>Sensed danger in Hong Kong
 Tried to volunteer for Ukraine but got no response. Considering everything happened afterwards and back then, the email address could also be fake.
 Sought asylum in Lithuainia.
 Went so far as to tell them about all the money I had, whether accessible or not, and how I planned to spend my money, which wasn't much, to establish my life in Lithuania.
@@ -10,7 +10,7 @@ Got my passport back after requested for months but not the document that would 
 Esstenially detained at the Riga International Airport and robbed of hundreds of euros which was almost everything I had before letting me leave.
 Arrived in the UK and sensed the influence was still there.
 Hoped that they contacted the UK because they felt bad about what they did.
-No. The same repeated and got furthered in the UK.
+No. The same repeated and got furthered in the UK.</pre>
 
 
 
