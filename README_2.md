@@ -10,7 +10,8 @@ Got my passport back after requested for months but not the document that would 
 Esstenially detained at the Riga International Airport and robbed of hundreds of euros which was almost everything I had before letting me leave.
 Arrived in the UK and sensed the influence was still there.
 Hoped that they contacted the UK because they felt bad about what they did.
-No. The same repeated and got furthered in the UK.</pre>
+No. The same repeated and got furthered in the UK.
+Furthered health damages. Furthered insults.</pre>
 
 
 
