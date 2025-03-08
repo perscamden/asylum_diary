@@ -22,7 +22,7 @@ About the appeal.
 I was not even contacted before being told to attend an online court hearing, nor was I able to access the case from the court system.
 They said that they wouldn't give me back my passport unless I wrote a letter to the court to cancel the appeal. I refused, saying that the appeal wasn't even started by me.
 
-Got my passport back after repeatedly requested for months. They repeatedly forced me to take the passport by signing a paper that said I was taking the passport for just a few days by saying that they wouldn't give me back my passport unless I sign it. I refused, saying that I was leaving the country and not returning.
+Got my passport back after repeatedly requested for months. They repeatedly forced me to take the passport by signing a paper that said I was taking the passport for just a few days by saying that they wouldn't give me back my passport unless I signed it. I refused, saying that I was leaving the country and not returning.
 
 When they agreed to give me back my passport, they originally agreed to give me a document that would state that I could pass Schengen area to seek safety elsewhere. But they refused to give me that document when they actually gave me back my passport. I asked for the document at first, after being refused I asked to confirm with them that I could travel through the Schengen area to seek safety elsewhere. They confirmed verbally.
 Throughout the process they also asked me to sign another paper to get an aid (money) for returning (to the country of origin). I refused, I said I wasn't returning. They said I could go to another country after taking the money. I refused and said I didn't want any confusion.
