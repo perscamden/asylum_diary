@@ -20,8 +20,7 @@ Furthered health damages. Furthered insults.
 
 Some details.
 Allowance.
-Was told to sign a paper about allowance. Considered that I didn't have much money and that I should be able to contribute back to the society when the waiting was done (or that's what I thought), along with other factors, I signed. Months later got an allowance of 14.7 (or 15.7 later) euros a month which soon paused when moved to Kybartai and I didn't sign another paper that looked different. Resumed when moved back to Pabradė.
-About the appeal.
+Was told to sign a paper about allowance. Considered that I didn't have much money and that I should be able to contribute back to the society when the waiting was done (or that's what I thought), along with other factors, I signed. Months later got an allowance of 14.7 (or 15.7 later) euros a month which soon paused when moved to Kybartai and I didn't sign another paper that looked different. Resumed when moved back to Pabradė. Most, if not all, was used to travel to the Migration department.
 
 About the appeal.
 Much like the whole time I wasn't given proper information even when I asked, I was not even contacted before being told to attend an online court hearing, nor was I able to access the case from the court system.
