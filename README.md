@@ -1,6 +1,6 @@
 ### An incomplete encapsulation
 
-Created [README_2.md](https://github.com/locharp/asylum_diary/blob/main/README_2.md) that should contains some other details.
+Created [README_2.md](https://github.com/locharp/asylum_diary/blob/main/README_2.md) that should contains some other details. It can be seen in it and everywhere among my entries. Power abuse is their belief. And further power abuse when it fails.
 
 The username "Lochard" sounds similar a very offensive phrase in my first language that roughly means "very stupid". "Patrick" also sounds similar to "idiot" in my first language. It was picked around 2 years ago when I felt something was wrong in Lithuania, not long after applied for asylum. I actually hoped the Lithuanians would tell me that they were just kidding with all the things back then. How could I have imagined it was only the beginning.
 
