@@ -1,4 +1,4 @@
-<pre>Sensed danger in Hong Kong
+Sensed danger in Hong Kong
 Tried to volunteer for Ukraine but got no response. Considering everything happened afterwards and back then, the email address could also be fake. Or anyhow, the email reached the persecutors.
 Sought asylum in Lithuainia.give 
 Went so far as to tell them about all the money I had, whether accessible or not, and how I planned to spend my money, which wasn't much, to establish my life in Lithuania.
@@ -17,12 +17,11 @@ Furthered health damages. Furthered insults.
 
 
 
-
-Some details.
-Allowance.
+**Some details**<br>
+Allowance<br>
 Was told to sign a paper about allowance. Considered that I didn't have much money and that I should be able to contribute back to the society when the waiting was done (or that's what I thought), along with other factors, I signed. Months later got an allowance of 14.7 (or 15.7 later) euros a month which soon paused when moved to Kybartai and I didn't sign another paper that looked different. Resumed when moved back to Pabradė. Most, if not all, was used to travel to the Migration department.
 
-About the appeal.
+About the appeal<br>
 Much like the whole time I wasn't given proper information even when I asked, I was not even contacted before being told to attend an online court hearing, nor was I able to access the case from the court system.
 They said that they wouldn't give me back my passport unless I wrote a letter to the court to cancel the appeal. I refused because the appeal wasn't even started by me, nor was I able to do anything with it.
 
@@ -32,4 +31,3 @@ When they agreed to give me back my passport, they originally agreed to give me 
 Throughout the process they also asked me to sign another paper to get an aid (money) for returning (to the country of origin). I refused, I said I wasn't returning. They said I could go to another country after taking the money. I refused and said I didn't want any confusion.
 
 I was essentially detained at the Riga International Airport. They said that I had no proof that the migration department of Lithuania gave me back my passport and allowed me to pass Schengen area to seek safety elsewhere. They said I could only leave if I buy another ticket but wouldn't let me reenter to buy at the airline counters. Obviously they knew that I couldn't buy online which had become known when I was still in Lithuania. They gave me an email address to ask for help from some organisation. Without a choice I sent an email to the organisation and explained the situation and asked for help to leave the airport. I received a response only after arrived in the UK. After trapped in the departure area for days when they pretended that I stayed there of my own accord, they let me leave by making me buy a ticket with cash from Ryanair, who previously said that they didn't accept cash, at hundreds of euros, which was almost all the money I had, and forced me to sign a paper. They said the paper said it was my fault to be trapped. I regret I signed it till this day.
-</pre>
