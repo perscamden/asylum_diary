@@ -12,7 +12,7 @@ Esstenially detained at the Riga International Airport and robbed of hundreds of
 Arrived in the UK and sensed the influence was still there.
 Hoped that they contacted the UK because they felt bad about what they did.
 No. The same repeated and got furthered in the UK.
-Furthered health damages. Furthered insults.
+Further health damages. Further insults.
 
 
 
