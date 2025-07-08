@@ -1,3 +1,20 @@
+*Added on 8 Jul 2025*\
+What I hope readers who are not the persecutors do and a brief explanation of my current status.
+
+If you see a man with messy, long hair, most likely also with a backpack and a clipboard showing a message in the UK, that might be me. I stopped cutting my hair since I sensed something was wrong in Lithuania in the Summer of 2022.
+
+You may see that I walk on the street as if I am free, but I'm not. I am under extreme surveillance that includes my bed and the bathroom. I am stalked everywhere by a group with vast numbers and influence. My network is intercepted. I receive only what the persecutors let me receive; the same applies to outbound and physical communications. I am put under effects almost every day by substances and unknown devices.
+
+If someone, especially the authorities, tries to convince you not to read what I write, it could be one from the persecutor group. I ask you to read my record on https://github.com/locharp/asylum_diary/ and think carefully.
+
+I might not be the best man, and I am very defensive now, but I confidently say that I behaved more than decent when I first applied for asylum. If I might be so bold, I might even be the most amicable person among all the others, and the one with the best intentions. But the years-long insult and torture changed things.
+
+I do not ask you to help me directly. I don't quite see how that could happen. If you find there might be truths to find out after reading my record and story. I hope that you can consider doing the following:
+1. Make sure there are people who often check on you before digging deeper or trying to help. And make sure they are someone you can trust your life with. As I have mentioned, the persecutors have enormous numbers and influence. A friend you can normally trust might betray you on this matter.
+2. Try to spread the word. Both my record and story, and your findings.
+
+---
+
 ### An incomplete encapsulation
 
 Created [README_2.md](https://github.com/locharp/asylum_diary/blob/main/README_2.md) that should contains some other details. It can be seen in it and everywhere among my entries. Power abuse is their belief. And further power abuse when it fails.
