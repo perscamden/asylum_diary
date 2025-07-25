@@ -1,5 +1,6 @@
 *Added on 25 Jul 2025*\
-I ask every human being to take this seriously. I am completely convinced the authorities and their affiliates that surround me  all these years are criminal both in nature and in practice. They are right in our societies, holding huge power and influence.
+Reader, ask yourself how anyone could have no problem using drugs, other chemicals and unknown devices to hurt and manipulate a  human's health for years.\
+I ask every human being to take this seriously. I am completely convinced the authorities and their affiliates that surround me  all these years are criminals both in nature and in practice. They are right in our societies, holding huge power and influence.
 
 *Added on 8 Jul 2025*\
 What I hope readers who are not the persecutors do and a brief explanation of my current status.
