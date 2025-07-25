@@ -1,4 +1,7 @@
 *Added on 8 Jul 2025*\
+I ask every human being to take this seriously. I am completely convinced the authorities and their affiliates that surround me  all these years are criminal both in nature and in practice. They are right in our societies, holding huge power and influence.
+
+*Added on 8 Jul 2025*\
 What I hope readers who are not the persecutors do and a brief explanation of my current status.
 
 If you see a man with messy, long hair, most likely also with a backpack and a clipboard showing a message in the UK, that might be me. I stopped cutting my hair since I sensed something was wrong in Lithuania in the Summer of 2022.
