@@ -1,4 +1,4 @@
-*Added on 8 Jul 2025*\
+*Added on 25 Jul 2025*\
 I ask every human being to take this seriously. I am completely convinced the authorities and their affiliates that surround me  all these years are criminal both in nature and in practice. They are right in our societies, holding huge power and influence.
 
 *Added on 8 Jul 2025*\
