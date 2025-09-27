@@ -8,3 +8,12 @@ But what values do humans truly possess? I don’t know anymore. What even are u
 Crimes committed by the authorities of one country is covered by the authorities of another. By furthering the crimes no less.
 
 What has happened to humanity? Has humanity always been this heinous? I mean, I have always known humans are not the purest creatures, but this...
+
+This world... really is one hell of a cesspool.
+From thinking that I was fine dying for a worthy cause, as in volunteering for a country that's under invasion.
+To being insulted and suffer  health damage by the very neighbour of that country.
+To continue to be insulted and suffer health damage by an ally, or kind of a far ​neighbour of theirs.
+
+Don't get me wrong. I still think the Chinese Communist Party is behind all of these. But without the local madness, the years-long persecution won't be possible.
+
+documentsdocumentCounting only from the application for asylum in Lithuania, it has been 41 months of information and basic rights deprivation,anymore harassment, humiliation, insult, health damages, drugging, molestation, assault, false allegation, real unlawful arrest, theft, and other forms of power abuse. And perhaps worst of all, I don't seem to have a human identity anymore. I don't really own anything, not even myself. No way to reach out, communication and mails intercepted. Only the bare minimum  documents reach me, just enough to maintain a façade; everything else is nothing but bullshit. Sometimes I wonder if there even is a real human world left to "return" to.
