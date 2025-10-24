@@ -1,6 +1,6 @@
 *They will likely claim that they have reasons other then persecution and covering the crimes of their allies and of themselves.*
 
-t*Added on 25 Jul 2025*\
+*Added on 25 Jul 2025*\
 Reader, ask yourself how anyone could have no problem using drugs, other chemicals and unknown devices to hurt and manipulate a  human's health and condition against his will for years. Don't forget thatv they are also committing other crimes at the same time.\
 I ask every human being to take this seriously. I am completely convinced the authorities and their affiliates that surround me  all these years are criminals both in nature and in practice. They are right in our societies, holding huge power and influence.
 
